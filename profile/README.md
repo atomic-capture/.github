@@ -18,4 +18,4 @@ Coming soon.
 
 ---
 
-*Personal project. Not affiliated with or endorsed by the U.S. Air Force or Department of Defense.*
+*Personal project. Not affiliated with or endorsed by the U.S. Air Force or Department of War.*
